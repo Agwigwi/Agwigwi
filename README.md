@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Agwigwi
 - 👀 I’m interested in Geology and Earth Sciences
-- 🌱 I’m currently learning about Geotechnical investigations
+- 🌱 I’m currently learning about Geotechnical investigations and Hydrogeology
 - 💞️ I’m looking to collaborate on Geology and Remote Sensing projects
 - 📫 How to reach me : brianadams750@gmail.com
 
